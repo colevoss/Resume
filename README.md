@@ -4,8 +4,6 @@
 
 ✉️ voss.cole@gmail.com
 
-☎️ 402-720-9808
-
 🐙 [colevoss](https://github.com/colevoss)
 
 🐦 [vosscco](https://twitter.com/vossCCo)
